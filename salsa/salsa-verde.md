@@ -1,39 +1,38 @@
 # Salsa Verde
 
-**Makes:** ~2 cups · **Prep:** 10 min · **Cook:** 10 min
+**Makes:** ~3 cups · **Prep:** 10 min · **Cook:** none — it's a raw blend
 
-Roasted tomatillo salsa — bright, tangy, and great on tacos, eggs, or
-straight off the chip.
+Green salsa with cilantro, pickled jalapeño, and avocado for body.
 
 ## Ingredients
 
-- 1 lb tomatillos (about 8–10), husked and rinsed
-- 1–2 jalapeños or serranos, stemmed (seed them for milder salsa)
-- 1/2 white onion, quartered
-- 3 garlic cloves, unpeeled
-- 1/2 cup cilantro, roughly chopped
-- Juice of 1 lime
-- 1/2 tsp salt, plus more to taste
-- Pinch of sugar (optional, if the tomatillos are extra tart)
+- 6 raw tomatillos, or 1 can (28 oz) tomatillos
+- 2 raw jalapeños (remove seeds for less heat)
+- 1/4 white onion, diced
+- 2 scallions / green onions
+- 2 chiles de árbol, or 1 tsp red pepper flakes
+- 4 garlic cloves
+- 1 tsp garlic powder
+- 1 tsp cumin
+- 1 tsp salt
+- 1 tsp black pepper
+- 1 tbsp oregano
+- 1 whole cilantro bunch
+- 4 pickled jalapeños
+- 1 tsp pickled jalapeño liquid
+- 1–2 limes, juiced
+- 1/2 avocado
 
 ## Directions
 
-1. Set the broiler to high. Put the tomatillos, peppers, onion, and garlic
-   on a foil-lined sheet pan.
-2. Broil 5–7 minutes until blistered and charred in spots, flip everything,
-   and broil another 3–5 minutes.
-3. Let cool slightly, then peel the garlic.
-4. Blend everything with the cilantro, lime juice, and salt. Pulse for a
-   chunky salsa, or run it longer for a smooth one.
-5. Taste — add salt, lime, or the pinch of sugar as needed. It thickens
-   and mellows after an hour in the fridge.
+1. Blend all ingredients **except the white onion**.
+2. Add the lime juice and blend until desired consistency.
+3. For a thinner salsa, add 1/4 cup water and blend on high.
+4. Stir in the diced white onion after blending.
 
 ## Notes
 
-- Keeps about a week refrigerated; it also freezes well.
-- Simmering the blended salsa in a little oil for 5 minutes deepens the
-  flavor and turns it into a great enchilada sauce.
-- No broiler? Char everything in a dry cast-iron skillet, or boil the
-  tomatillos 5 minutes for a fresher, greener version.
+- The avocado gives it body and smooths out the heat.
+- Canned tomatillos make it quicker; raw keeps it brighter and tangier.
 
 **Rating:** 🌶🌶🌶
